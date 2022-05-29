@@ -19,4 +19,4 @@ I have a Master's Degree in Fine Art and have also studied Political Science. Fo
 
 In my free time I am with my children and play games. Game development is a fun industry, and the Covid-19 pandemic made me decide to change the path of my career to it.
 
-Please look at my CV and contact me.
+Please look at my CV and contact me. c.rihtnesberg@gmail.com
