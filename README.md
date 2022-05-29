@@ -13,7 +13,7 @@ I have learned Maya and I am currently to learning ZBrush as well.
 
 ### Work experience / Education:
 
-I have a master's degree in fine art and have also studied Political science. For many years I have worked with intellectual property at several patent offices here in Stockholm and have two own patents. I also have business experience, a company that designed mother & child clothing, you can find the company at this address www.cecilijas.com.
+I have a Master's Degree in Fine Art and have also studied Political Science. For many years I have worked with Intellectual Property at several patent offices here in Stockholm and have two own patents. I also have business experience, a company that designed mother & child clothing. www.cecilijas.com
 
 ### About me:
 
