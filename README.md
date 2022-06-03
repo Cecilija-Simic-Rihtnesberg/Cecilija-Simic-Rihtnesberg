@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Cecilija and I am a Game Programming student at Forsbergs since September 2021.
+### My name is Cecilija and I am a Game Programming student at Forsbergs since September 2021.
 
 ## I have studied:
 
