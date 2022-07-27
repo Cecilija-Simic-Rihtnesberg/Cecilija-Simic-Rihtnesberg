@@ -11,7 +11,7 @@ C++ with UnrealEngine (currently studying)
 I have completed courses (10 weeks, 2021) in GameArt. 
 I have learned Maya and I am currently to learning ZBrush as well.
 
-## Work experience / Education:
+## Education / Work experience:
 
 I have a Master's Degree in Fine Art and have also studied Political Science. For many years I have worked with Intellectual Property at several Patent Offices here in Stockholm and have two own patents. I also have business experience, a company that designed Mother & Child Clothing. www.cecilijas.com
 
