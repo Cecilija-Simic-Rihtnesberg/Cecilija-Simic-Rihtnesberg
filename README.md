@@ -20,6 +20,6 @@ I have a Master's Degree in Fine Arts and I have also studied Political Science.
 
 In my free time I am with my children and play games. Game development is a fun industry, and the Covid-19 pandemic made me decide to change the path of my career to it.
 
-Please look at my CV and contact me. c.rihtnesberg@gmail.com
+Please look at my CV and contact me: c.rihtnesberg@gmail.com
 
 Check it my website with Portfolio: https://crihtnesberg.wixsite.com/cecilija-simic-rihtn
