@@ -13,7 +13,7 @@ I have completed courses (10 weeks, 2021) in GameArt.
 
 ## Education / Work experience:
 
-I have a Master's Degree in Fine Arts and I have also studied Political Science. For many years I have worked with Intellectual Property at several Patent Offices here in Stockholm and have my own two patents also. I have had business experience where I owned a company that designed Mother & Child Clothing for several years. Check it out here www.cecilijas.com
+I have a Master in Fine Arts and I have also studied Political Science. For many years I have worked with Intellectual Property at several Patent Offices here in Stockholm and have my own two patents also. I have had business experience where I owned a company that designed Mother & Child Clothing for several years. Check it out here www.cecilijas.com
 
 ## About me:
 
