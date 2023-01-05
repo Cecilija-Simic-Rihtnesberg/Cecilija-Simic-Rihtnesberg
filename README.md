@@ -7,10 +7,9 @@
 
 C# with Unity
 
-C++ with UnrealEngine (currently studying) 
+C++ with UnrealEngine 
 
 I have completed courses (10 weeks, 2021) in GameArt. 
-I have learned Maya and I am currently to learning ZBrush as well.
 
 ## Education / Work experience:
 
@@ -20,6 +19,6 @@ I have a Master's Degree in Fine Arts and I have also studied Political Science.
 
 In my free time I am with my children and play games. Game development is a fun industry, and the Covid-19 pandemic made me decide to change the path of my career to it.
 
-Please look at my CV and contact me: c.rihtnesberg@gmail.com
+Check it my website with Portfolio and please look at my CV: https://crihtnesberg.wixsite.com/cecilija-simic-rihtn
 
-Check it my website with Portfolio: https://crihtnesberg.wixsite.com/cecilija-simic-rihtn
+Contact me: c.rihtnesberg@gmail.com
